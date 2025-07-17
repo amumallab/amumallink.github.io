@@ -1,1 +1,1 @@
-# amumallink.github.io
+# amumallink
